@@ -40,5 +40,5 @@ Full - **$849**
 100 night trial. Free shipping and returns.  
 Full - **$1275**
 ### [Tuft & Needle](https://www.tuftandneedle.com/)  
-100 night trial. Free shipping and returns.
+100 night trial. Free shipping and returns.  
 Full - **$500**
