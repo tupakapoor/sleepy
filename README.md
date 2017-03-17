@@ -3,7 +3,7 @@
 With all of the new mattress companies, I wanted to compile a list for my own sake, but also to see how long one could potentially sleep for free with all of the free trials that are available.
 
 ## Companies (in alphabetical order)
-###[4Sleep](http://www.4sleep.com)
+### [4Sleep](http://www.4sleep.com)
 100 night trial. Free shipping and returns  
 Full - **$799**
 ### [Bear](https://www.bearmattress.com/)
