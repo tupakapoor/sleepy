@@ -40,5 +40,6 @@ Full - **$849**
 100 night trial. Free shipping and returns.  
 Full - **$1275**
 ### [Tuft & Needle](https://www.tuftandneedle.com/)  
-100 night trial. Free shipping and returns.  
+100 night trial. Free shipping and returns.
++ An additional 100 nights is provided if you complain the mattress is too firm; this is to give you an opportunity to trial their 2" mattress topper.
 Full - **$500**
